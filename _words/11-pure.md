@@ -2,6 +2,7 @@
 layout: word
 title: Pure
 categories: first
+published: true
 ---
 
 ##Scriptures
@@ -26,8 +27,12 @@ But flee youthful lusts, and pursue righteousness, faith, love, peace with those
 **To be pure in heart is to be single in purpose, to have the single goal of accomplishing God's will for God's glory** (1 Cor. 10:31). This is for the kingdom of the heavens. Our spirit is the organ by which we receive Christ (John 1:12; 3:6), whereas our heart is the ground where Christ as the seed of life grows (13:19). For the kingdom of the heavens we need to be poor in spirit, empty in our spirit, that we may receive Christ. Also, **we need to be pure, single, in our heart that Christ may grow in us without frustration.**
 ---_Matt. 5:8, note 1_
 
+---
+
 **If we are pure in heart in seeking God, we will see God**. Seeing God is a reward to the pure in heart. This blessing is both for today and for the coming age.
 ---_Matt. 5:8, note 2_
+
+---
 
 **A pure heart is a single heart without mixture, a heart that seeks only the Lord and takes the Lord as the unique goal…**
 ---_1 Tim. 1:5, note 3_
@@ -123,4 +128,3 @@ Let each experience constitute me
 So Your life I'll display  
 In every way.
 </pre>
-
