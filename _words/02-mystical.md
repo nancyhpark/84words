@@ -3,6 +3,7 @@ layout: word
 title: Mystical
 categories: first
 subheading: Mysterious
+published: true
 ---
 
 ## Scriptures
@@ -47,7 +48,7 @@ God wanted us to be in Him. If He were merely the Triune God without Christ's hu
 
 Although I was born in China and have become a naturalized American citizen, I can testify that I do not have the feeling that I am either Chinese or American. My realm is not China or America—my realm is the complicated and complicating Triune God. **I am here with the Father, with the Son, who was crucified and resurrected, and with the consummated Spirit. Since I am in such a Triune God, I have whatever I need. If I need crucifixion, I find that in this realm I have been crucified already. If I need resurrection, in this realm I have been resurrected already. Praise the Lord for such a divine and mystical realm!**
 
-If we had been there when the Lord Jesus spoke about believing into God and into Him, we might have said, "Lord, I want to enter into You. Tell me how to believe into You **." As the following verses reveal, for us to enter into Him He had to die and be resurrected to become the life-giving Spirit, that we may receive Him by believing into Him and calling, "O Lord Jesus."** (_The Divine and Mystical Realm_, pp. 40-41)
+If we had been there when the Lord Jesus spoke about believing into God and into Him, we might have said, "Lord, I want to enter into You. Tell me how to believe into You **." As the following verses reveal, for us to enter into Him He had to die and be resurrected to become the life-giving Spirit, that we may receive Him by believing into Him and calling, "O Lord Jesus."** (_The Divine and Mystical Realm_, Chapter 3, Section 5)
 
 ---
 
@@ -55,7 +56,7 @@ The first Comforter was Christ in the flesh, and the other Comforter is the Spir
 
 Let us now read all of [John 14:] 20: "In that day you will know that I am in My Father, and you in Me, and I in you **." This refers to the divine and mystical realm where not only the Father, the Son, and the Spirit are but also where the believers are. Praise the Lord that, as believers in Christ, we are now in the divine, mystical realm of the consummated Spirit and the pneumatic Christ!**
 
-**We all need to enter into the divine and mystical realm, not of the Triune God, but of the consummated Spirit and the pneumatic Christ (Phil. 1:19; Rom. 8:9; 2 Cor. 3:17-18)** (_The Divine and Mystical Realm_, pp. 43b-44)
+**We all need to enter into the divine and mystical realm, not of the Triune God, but of the consummated Spirit and the pneumatic Christ (Phil. 1:19; Rom. 8:9; 2 Cor. 3:17-18)** (_The Divine and Mystical Realm_, Chapter 3, Section 6)
 
 ## Hymns
 
