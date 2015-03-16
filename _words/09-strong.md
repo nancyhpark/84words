@@ -2,6 +2,7 @@
 layout: word
 title: Strong
 categories: first
+published: true
 ---
 
 ##Scriptures
@@ -24,32 +25,42 @@ God is now my salvation; / I will trust and not dread; / **For Jah Jehovah is my
 Yet **those who wait on Jehovah will renew their strength;** / They will mount up with wings like eagles; / They will run and will not faint; / They will walk and will not become weary.
 ---_Isa. 40:31_
 
-That He would grant you, according to the riches of His glory, to be **strengthened with power through His Spirit into the inner man**, 17 That Christ may make His home in your hearts through faith, that you, being rooted and grounded in love, 18 May be **full of strength to apprehend** with all the saints what the breadth and length and height and depth are.
----_Eph. 3:16_
+That He would grant you, according to the riches of His glory, to be **strengthened with power through His Spirit into the inner man**, That Christ may make His home in your hearts through faith, that you, being rooted and grounded in love, May be **full of strength to apprehend** with all the saints what the breadth and length and height and depth are.
+---_Eph. 3:16-18_
 
 ## Footnotes
 
 Strength and song both indicate experience. **When God's salvation is experienced by us, it becomes our strength,** and eventually it will be our song, our praising.
 ---_Isa 12:2, note 3_
 
+---
+
 To wait on the eternal God (v. 28) means that we terminate ourselves, i.e., that we stop ourselves with our living, our doing, and our activity, and receive God in Christ as our life, our person, and our replacement. **Such a waiting one will be renewed and strengthened to such an extent that he will mount up with wings like eagles.** He will not only walk and run but also soar in the heavens, far above every earthly frustration. This is a transformed person. This chapter leads us to a comparison between Hezekiah, a godly man who was still in the old creation (chs. 36—39), and a regenerated and transformed person in the new creation.
 ---_Isa 40:31 note 1, par. 1_
+
+---
 
 Signifying those who are spiritually stronger (cf. 1 Pet. 3:7). **The enjoyment of Christ makes us stronger, and this affords us the capacity to enjoy Christ in a stronger way** (cf. Eph. 3:16-18).
 ---_Num 18:10, note 1_
 
+---
+
 The apostle's prayer in 1:15-23 was that the saints would receive revelation concerning the church. Here in vv. 14-21 **his prayer is that the saints would experience Christ for the church. This requires us to be strengthened into our spirit.**
 ---_Eph 3:16, note 3_
 
+---
+
 **The Father strengthens us from within through the indwelling Spirit,** who has been with us and in us since our regeneration.
 ---_Eph 3:16, note 5_
+
+---
 
 The inner man is our regenerated spirit, which has God's life as its life **. In order that we may experience Christ unto all the fullness of God, we need to be strengthened into our inner man. This implies that we need to be strengthened into our spirit through the Holy Spirit.**
 ---_Eph 3:16, note 6_
 
 ## Ministry Exceprts
 
-**The saints are strong because the word of God is abiding in them (1 John 2:14b)**. When a man has an empty stomach and is hungry, he will surely be weak; there is no possibility that he will be strong. But if he eats, his strength will return, and he will be strong. **For you to be strong today, you need to be fed with the word of God**. Without the word of God, it is impossible for a person to be strong. (_Messages Given to the Working Saints_, p. 58)
+**The saints are strong because the word of God is abiding in them (1 John 2:14b)**. When a man has an empty stomach and is hungry, he will surely be weak; there is no possibility that he will be strong. But if he eats, his strength will return, and he will be strong. **For you to be strong today, you need to be fed with the word of God**. Without the word of God, it is impossible for a person to be strong. (_Messages Given to the Working Saints_, Chapter 6, Section 3)
 
 ---
 
