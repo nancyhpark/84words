@@ -2,6 +2,7 @@
 layout: word
 title: Affectionate
 categories: first
+published: true
 ---
 
 ##Scriptures
@@ -12,8 +13,10 @@ Let him kiss me with the kisses of his mouth! / For your love is better than win
 Go and cry in the ears of Jerusalem, saying, Thus says Jehovah: / I remember concerning you the kindness of your youth, / **The love of your bridal days, / When you followed after Me** in the wilderness, / In a land that was not sown.
 ---_Jer. 2:2_
 
-And she stood behind Him at His feet weeping and began to wet His feet with her tears and wiped them with the hair of her head, and **she kissed His feet affectionately and anointed them with the ointment**. 45 You did not give Me a kiss, but **she, from the time I entered, has not stopped kissing My feet affectionately**.
----_Luke 7:38_
+And she stood behind Him at His feet weeping and began to wet His feet with her tears and wiped them with the hair of her head, and **she kissed His feet affectionately and anointed them with the ointment**. ---_Luke 7:38_
+
+You did not give Me a kiss, but **she, from the time I entered, has not stopped kissing My feet affectionately**.
+---_Luke 7:45_
 
 For you have not received a spirit of slavery bringing you into fear again, but you have received a spirit of sonship in which **we cry, Abba, Father**!
 ---_Rom. 8:15_
@@ -23,8 +26,12 @@ For you have not received a spirit of slavery bringing you into fear again, but 
 According to vv. 2-3, the lover of Christ has obtained a part of Christ's love, but now she yearns for something more intimate. This indicates that the **very Christ in whom we believe is personal and affectionate toward us** , **and that****every believer's relationship with Christ must be personal and affectionate **(Mark 16:7 and note; John 13:23; 20:1-17; Gal. 2:20b). After believing in Christ to receive Him as the divine life (John 1:4, 12),** we need to love Christ in a personal and affectionate way that we may pursue Him and enjoy Him as our satisfaction** (1 Cor. 2:9 and note 3; 1 Tim. 1:14 and note 2).
 ---_S.S. 1:2, note 1, par 2_
 
+---
+
 The mentioning of love here indicates that God's intention in giving His law to His chosen people was that they become His lovers (Deut. 6:5; Matt. 22:35-38; Mark 12:28-30). In bringing His people out of Egypt and giving His law to them, God was courting them, wooing them, and seeking to win their affection. Jeremiah 2:2; 31:32; and Ezekiel 16:8 indicate that the covenant enacted at the mountain of God through the giving of the law (24:7-8; 34:27-28) was an engagement covenant, in which God betrothed the children of Israel to Himself (cf. 2 Cor. 11:2). The Ten Commandments, especially the first five, gave the terms of the engagement between God and His people. The highest function of the law is to bring God's chosen people into oneness with Him, as a wife is brought into oneness with her husband (cf. Gen. 2:24; Rev. 22:17). In order for God and His people to be one, there must be a mutual love between them (John 14:21, 23). **The love between God and His people unfolded in the Bible is primarily like the affectionate love between a man and a woman (Jer. 2:2; 31:3). As God's people love God and spend time to fellowship with Him in His word, God infuses them with His divine element, making them one with Him as His spouse, the same as He is in life, nature, and expression** (Gen. 2:18-25 and notes).
 ---_Exo 20:6, note 2, par. 1_
+
+---
 
 Abba is an Aramaic word, and Father is the translation of the Greek word Pater. Such a term was used first by the Lord Jesus in Gethsemane while He was praying to the Father (Mark 14:36). The combining of the Aramaic title with the Greek title expresses a stronger affection in crying to the Father. **Such an affectionate cry implies an intimate relationship in life between a genuine son and a begetting father.**
 ---_Gal 4:6, note 4_
