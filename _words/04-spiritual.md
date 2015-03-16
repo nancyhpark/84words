@@ -2,6 +2,7 @@
 layout: word
 title: Spiritual
 categories: first
+published: true
 ---
 
 ##Scriptures
@@ -25,14 +26,20 @@ By means of all prayer and petition, **praying at every time in spirit** and wat
 
 **In her pursuing of Christ the seeker is brought by Him into her regenerated spirit as the Holiest of all (his chambers) to have fellowship with Him** (2 Cor. 13:14; Phil. 2:1). Our regenerated spirit (John 3:6) as Christ's dwelling place, which is mingled with and indwelt by Christ as the life-dispensing Spirit (1 Cor. 6:17; 2 Tim. 4:22), becomes His inner chambers, His practical Holy of Holies (Heb. 4:16; 10:19), for our participation in and enjoyment of Him as the consummated Triune God.
 
-Through His death and resurrection Christ, as the last Adam, a man in the flesh, became the life-giving Spirit (1 Cor. 15:45; 2 Cor. 3:17). **As the all-inclusive consummated Spirit He visits us in our spirit privately, coming to us in a spiritual way, not in a physical way**.
+Through His death and resurrection Christ, as the last Adam, a man in the flesh, became the life-giving Spirit (1 Cor. 15:45; 2 Cor. 3:17). **As the all-inclusive consummated Spirit He visits us in our spirit privately, coming to us in a spiritual way, not in a physical way**.	
 ---_S.S. 1:4, note 2_
+
+---
 
 The Holy of Holies today is in heaven, where the Lord Jesus is (9:12, 24). **How, then, can we enter the Holy of Holies while we are still on earth? The secret is our spirit, referred to in 4:12**. The very Christ who is in heaven is now also in our spirit (2 Tim. 4:22). As the heavenly ladder (Gen. 28:12; John 1:51), He joins our spirit to heaven and brings heaven into our spirit. Hence, **whenever we turn to our spirit, we enter into the Holy of Holies. There we meet with God, who is on the throne of grace.** See note 161 in ch. 4.
 ---_Heb 10:19, note 1_
 
+---
+
 **A spiritual man is one who denies his soul and does not live by his soul but allows his spirit, that is, his regenerated spirit, which is occupied and energized by the Spirit of God, to dominate his entire being**. Furthermore, he lives by such a spirit, moving and acting according to it (Rom. 8:4). Such a spiritual person is able to discern the things of the Spirit of God because his constitutional capacity for spiritual perception is able to manifest its function.
 ---_1 Cor. 2:15, note 1_
+
+---
 
 I.e., based on. Whatever we are, whatever we do, and whatever we have must be in spirit. This will keep us from the vanity of religion. See note 92 in ch. 1. **The reality of all spiritual things depends on the Spirit of God, and the Spirit of God is in our spirit. Hence, the reality of all spiritual matters depends on our spirit,** not on anything apart from our spirit. Whatever is in us is vanity unless it is in our spirit. **Everything that God is to us is in our spirit.**
 ---_Rom 2:29, note 2_
